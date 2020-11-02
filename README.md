@@ -1,1 +1,1 @@
-# rifaiibnu.github.io
+# rifaiibnu.io
